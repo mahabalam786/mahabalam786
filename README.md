@@ -19,9 +19,9 @@ Stay Current: Keep up-to-date with the latest web technologies and best practice
 📫 Connect with Me:
 LinkedIn: linkedin.com/in/mahab-alam-a44605274
 
-Email: mahabalam456@gmail.com
+          Email: mahabalam456@gmail.com
 
-Phone no- +91 -9335427741
+          Phone no- +91 -9335427741
 
 
 
