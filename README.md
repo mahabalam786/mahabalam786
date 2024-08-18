@@ -17,11 +17,12 @@ Collaborate: Work with cross-functional teams to integrate front-end elements wi
 Stay Current: Keep up-to-date with the latest web technologies and best practices.
 
 📫 Connect with Me:
+
 LinkedIn: linkedin.com/in/mahab-alam-a44605274
 
-          Email: mahabalam456@gmail.com
+Email:   mahabalam456@hgmail.com 
 
-          Phone no- +91 -9335427741
+
 
 
 
